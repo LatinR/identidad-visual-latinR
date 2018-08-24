@@ -1,2 +1,2 @@
 # Identidad visual LatinR
-Logos e identidad visual LatinR
+Los logos de LatinR fueron diseñados por [Flavia Fernández](https://www.behance.net/flaviafernandez).
